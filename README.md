@@ -59,3 +59,12 @@ Here’s an example of VIF results:
 
 ---
 
+![download](https://github.com/user-attachments/assets/800578c4-d762-4282-a8bb-a4d8c1562833)
+![download](https://github.com/user-attachments/assets/cb12ff0e-dea7-46ba-90c5-86d2430f55d1)
+![download](https://github.com/user-attachments/assets/c4a28c8f-6d46-4b06-813e-908162f82863)
+![download](https://github.com/user-attachments/assets/c185f565-d5c2-4a80-8640-1bc31e26abb9)
+![download](https://github.com/user-attachments/assets/cbfe8db7-65c8-4893-bbec-0d8a57a0a36e)
+![download](https://github.com/user-attachments/assets/3bb7781c-fcb2-4e06-8b1c-026b33799b6f)
+![download](https://github.com/user-attachments/assets/e244ad5f-4f54-442b-bcae-f351dafb70bc)
+![download](https://github.com/user-attachments/assets/d8ea94dd-9ef9-45fe-9233-20e3ccb6ed80)
+![download](https://github.com/user-attachments/assets/73f4807d-1947-4a85-9581-f2665b6c1db8)
